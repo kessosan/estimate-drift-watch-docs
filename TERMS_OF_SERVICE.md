@@ -77,4 +77,4 @@ Unless mandatory law provides otherwise, these Terms are governed by the laws of
 
 For questions regarding these Terms:
 
-**[SUPPORT EMAIL TO DEFINE]**
+souchet@wanadoo.fr
