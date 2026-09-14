@@ -65,4 +65,4 @@ Material changes will be reflected by updating the date at the top of this docum
 
 For privacy-related questions regarding Estimate Drift Watch, contact:
 
-**[SUPPORT EMAIL TO DEFINE]**
+souchet@wanadoo.fr
